@@ -1,0 +1,1 @@
+# Parcial-idea-de-negocio
